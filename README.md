@@ -3,6 +3,6 @@
 
 
      when they see us holding hand , theyd wish that they were geeks in love !
-     
-ᨸ꒰ྀི　　Ze　　𝚘𝚛　　Kasper　　ྀིᨯ
-𝄈　　 it　　╱　　he　 　 e
+ ۟ ͡𓂅 ❛    Ze ⌣
+        ᵒᵘ Kasper  ̣̣ ׁ ͜͝ | 
+              ꒰ ͜͝ ͜͝ | it 𓎟 he 
