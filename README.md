@@ -3,6 +3,4 @@
 
 
      when they see us holding hand , theyd wish that they were geeks in love !
- ۟ ͡𓂅 ❛    Ze ⌣
-    ᵒᵘ Kasper  ̣̣ ׁ ͜͝ | 
-꒰ ͜͝ ͜͝ | it 𓎟 he ☀️
+ze ou kasper - it / he , zabooboo3 fictkin / irl srs . also medium kasper fictkin , pAInter and Lampert yume >,<
